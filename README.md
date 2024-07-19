@@ -347,10 +347,5 @@ Our unique methodology ensures you are not just ready but ahead in the job marke
 
 ## OUTPUT
 
-![image](https://github.com/ajay45d/webpagez/assets/134574325/8cec7f1c-5ceb-47be-8ef9-545a2d6357d7)
-![image](https://github.com/ajay45d/webpagez/assets/134574325/35461ec0-d5ba-4818-903a-5e85d75c4413)
-![image](https://github.com/ajay45d/webpagez/assets/134574325/42073832-984d-451c-a9e7-ca842c948831)
-![image](https://github.com/ajay45d/webpagez/assets/134574325/5b64ddaa-47b1-46c6-9a63-86abcc8fc41c)
-![image](https://github.com/ajay45d/webpagez/assets/134574325/4409d28d-2689-4d88-aec6-05b393a2260a)
 
 
